@@ -1,1 +1,1 @@
-thus spoke zarahustra
+where stood ozymandius
